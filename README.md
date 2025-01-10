@@ -1,1 +1,1 @@
-# Varit-ten-des-Deutschen
+# Varitaeten-des-Deutschen
